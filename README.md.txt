@@ -1,1 +1,1 @@
-My name is Park, Gyeol
+My name is Park, Gyeol. Today's weather is so hot.
